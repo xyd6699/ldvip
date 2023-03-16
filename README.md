@@ -3,7 +3,7 @@
 ### 乐动体育手机H5浏览地址：
 ### 请复制以下域名到手机浏览器打开
 
-### [lddd24.com](https://lddd24.com)<br>
+### [lddd24.com](http://lddd24.com)<br>
 
 ### [lddd8.vip](https://lddd8.vip)<br>
 
