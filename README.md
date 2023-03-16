@@ -29,7 +29,7 @@
 # 乐动体育回家页简介
 
 ### 分享精彩体育赛事，尽在乐动体育！<br>
-### 请收藏保存本网址：[github.com/ld1vip/ldvip](https://github.com/ld1vip/ldvip)<br>
+### 请收藏保存本网址：[github.com/xyd6699/ldvip](https://github.com/xyd6699/ldvip)<br>
 
 ### 安卓手机出现限制安装解决办法
 
