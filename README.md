@@ -12,7 +12,7 @@
 
 ### [lddd3.com](https://lddd3.com)<br>
 
-### [ld.vip](https://ld.vip)<br>
+### [ld1.vip](https://ld1.vip)<br>
 
 ### 安卓APP下载地址：
 
